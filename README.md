@@ -6,5 +6,4 @@
 - 🤔 I’m looking for help with my 3D game
 - 💬 Ask me about anything programming
 - 📫 How to reach me: pedro.remedios@gmail.com
-- 😄 Pronouns: Those don't exist! I am M-A-L-E
 - ⚡ Fun fact: I love playing Destiny 2
